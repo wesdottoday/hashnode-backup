@@ -24,7 +24,7 @@ I would forward my recommendations and all of the data to the back-office so the
 
 Ideally I would only have two in person customer calls per day, allowing me time to go to the office to work on reports, research, R&D, check in on on-going projects, or meet with lawmakers to help write legislation to improve the building code to help protect people's help. 
 
-In the office, I would love to have someone in charge of finances and billing, another in charge of customer engagements, someone running contractor relations, and a technical team of two that work on developing technology and sensors. 
+In the office, I would love to have someone in charge of finances and billing, another in charge of customer engagements, someone running contractor relations, and a R&D team that work on developing technology and sensors. 
 
 My day would then proceed from there as necessary. I want to have empowered employees who are very comfortable and understand the bounds in which they can make decisions on behalf of the business. I never want to be an impediment to progress.
 
