@@ -24,7 +24,7 @@ I'm working with my business partner to commission some custom distributed senso
 
 > I've always viewed tech as an enabler for other things in my life.
 
-I will be building this company in public over the next 3-5 years. Slowly, thoughtfully, carefully. I want to get things right. I want to be sure that my family is comfortable and isn't worried about money while I'm building this company - which is where tech being an enabler comes into play. My current compensation package means that I should be able to pay off our house in the next 4 years, ensuring that we're just that more secure. Using tech to enable other things in your life is okay and I honestly encourage it. [Kris Nova](https://twitter.com/krisnova) also has a very good perspective on this.
+I will be building this company in public over the next 3-5 years. Slowly, thoughtfully, carefully. I want to get things right. I want to be sure that my family is comfortable and isn't worried about money while I'm building this company - which is where tech being an enabler comes into play. Using tech to enable other things in your life is okay and I honestly encourage it. [Kris Nova](https://twitter.com/krisnova) also has a very good perspective on this.
 
 I want to ensure that my company ethos, mission, and vision align closely with my values and the goal I have in mind for the company - while building it in such a way that ensures long term sustainability. I want to be able to support my employees in such a way that focuses on building a happy and successful career, while also giving them the space to be with their families and loved ones.
 
