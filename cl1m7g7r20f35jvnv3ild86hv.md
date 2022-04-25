@@ -22,7 +22,7 @@ Once a survey is complete, we would sit back down and talk through my initial re
 
 I would forward my recommendations and all of the data to the back-office so they can build the initial proposal and plan of action. Further remedies would be identified once a more thorough survey takes place. These surveys usually will gather data for 2-4 weeks, which should give us a more thorough picture of the air quality patterns in the home. 
 
-Ideally I would only have two in person customer calls per day, allowing me time to go to the office to work on reports, research, R&D, check in on on-going projects, or meet with lawmakers to help write legislation to improve the building code to help protect people's help. 
+Ideally I would only have two in person customer calls per day, allowing me time to go to the office to work on reports, research, R&D, check in on on-going projects, or meet with lawmakers to help write legislation to improve the building code to help protect people's health. 
 
 In the office, I would love to have someone in charge of finances and billing, another in charge of customer engagements, someone running contractor relations, and a R&D team that work on developing technology and sensors. 
 
